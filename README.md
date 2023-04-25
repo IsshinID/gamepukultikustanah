@@ -1,2 +1,2 @@
-# gamepukultikustanah-Sandhika-Galih-
+# gamepukultikustanah (Sandhika Galih)
 
